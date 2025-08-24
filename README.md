@@ -15,7 +15,8 @@ system cheergiver & comforter! i'm also an age regressor wow... <br>
 i am terribly energetic...... very sorry if it seems liek i'm freakign out! <br>
   i cannot typel for SHTI i am so bad at it. i tr ymy best! <br>
   PLEAASE interatc wit me i LOVE talking i interaction. unless stated <br>
-  pleas ebe cautuous w/ seuxal jokes n stuff around me, i do not really enjoy them :'3
+  pleas ebe cautuous w/ seuxal jokes n stuff around me, i do not really enjoy them :'3 <br>
+  (UNLESS YOURE A CLOSE FRIEND!!!! ajnd kniw when to stop ,,,)
 </p>
 
 ***
